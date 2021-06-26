@@ -69,3 +69,4 @@ Nooshineh Fallah Zabihi
   
  * Fantastic summer school, thanks and all the best! - Kong You Liow
 
+* This has been one of the most fruitful and helpful Summer Schools that I have participated so far. I will for sure use all the materials and revisit some of the lectures in the future. I am very happy with the organization of the school and all the offered contents, I hope that in the following years there will be also a face to face version of this School. Thank you! - Ivana Batković
